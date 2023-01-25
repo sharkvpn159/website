@@ -1,22 +1,20 @@
 ## 鲨鱼加速器 - 不限制访问 突破网络封锁 #
-**:earth_africa: 稳定运行已经超900天！**
+**:earth_africa: 稳定运行已经超2000天！**
 
 **:lock: 无需任何信息即可注册！**
 
 **:rocket: 无需配置，3秒内连接！**
 
-**:man: 已经助力1000W+用户解锁全球网络！**
+**:man: 已经助力1600W+用户解锁全球网络！**
 
 - - - -
 #### 各平台安装包下载（请在浏览器中打开）
 
-**:arrow_double_down: [iOS 用户下载教程](https://appshare.xkvpn.online/8cTr/03v07zxk)** 
+**:arrow_double_down: [iOS 版本链接](https://appshare.xgvpn.top/xgvpn.html?t=t3gu23za)**
 
-**:arrow_double_down: [iOS 版本链接](https://appshare.xkvpn.online/8cTr/w4j6pazy)**
+**:arrow_double_down: [Android 版本.apk](https://appshare.xgvpn.top/xgvpn.html?t=u5q6ok55)**
 
-**:arrow_double_down: [Android 版本.apk](https://appshare.xkvpn.online/8cTr/gz6034vu)**
-
-**:globe_with_meridians: [访问官方网站](https://appshare.xkvpn.online/8cTr/hy11h0l3)** 
+**:globe_with_meridians: [访问官方网站](https://appshare.xgvpn.top/xgvpn.html?t=8u5v7led)** 
 
 ###
 ---
